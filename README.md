@@ -1,1 +1,0 @@
-# 4210161028-Galih-Aulia-Al-Hakim-Praktikum-Aided
